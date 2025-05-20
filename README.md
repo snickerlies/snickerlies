@@ -1,3 +1,1 @@
-![snicekrliers](https://github.com/user-attachments/assets/90e1edf2-10e0-432d-bf28-8bce2aebd1a7)
-
-> snickerlies: 🐀 malware, mayhem, and marshmallows
+![New Project](https://github.com/user-attachments/assets/23b0db0a-d8fb-4c4e-a2f8-e1494f54b56d)
